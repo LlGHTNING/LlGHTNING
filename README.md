@@ -4,4 +4,4 @@
   
 <img width="500" alt="1000006389" src="https://github.com/user-attachments/assets/acf31e46-70b9-4d8c-ab29-cbf8aa609851" />
 
-<sub> [atabook](https://accretiondisk.atabook.org/)  [carrd(remaking)](https://sheeppaws.carrd.co/)  [twt](https://x.com/sheeppaws)  [tumblr(wip)](https://www.tumblr.com/sheeppaws)  [tiktok](https://tiktok.com/@sheeppaws)
+<sub> [atabook](https://accretiondisk.atabook.org/)  [carrd(remaking)](https://sheeppaws.carrd.co/)  [twt](https://x.com/sheeppaws)  [tumblr(wip)](https://www.tumblr.com/sheeppaws)  [en.pronouns](https://en.pronouns.page/@LIGHTNINGBOLT)
